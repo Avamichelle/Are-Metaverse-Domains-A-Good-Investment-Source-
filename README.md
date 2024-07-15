@@ -1,7 +1,7 @@
 # Are-Metaverse-Domains-A-Good-Investment-Source-?-
 
 <div class="image-container">
-    <img src="https://github.com/Avamichelle/Are-Metaverse-Domains-A-Good-Investment-Source-/blob/main/Secure%20your%20meta%20(5).png?raw=true" alt="Are Metaverse Domains A Good Investment Source">
+    <img src="https://github.com/Avamichelle/Are-Metaverse-Domains-A-Good-Investment-Source-/blob/main/Secure%20your%20meta%20(5).png" alt="Are Metaverse Domains A Good Investment Source">
 </div>
 
 
